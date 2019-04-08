@@ -1,0 +1,2 @@
+# killandten
+para jugar pubg
